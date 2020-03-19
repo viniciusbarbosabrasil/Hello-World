@@ -1,2 +1,8 @@
 # Hello-World
-A traine Repository that contains ideas, resourses, about my profesional develop
+
+Para ser grande, sê inteiro: nada
+Teu exagera ou exclui.
+Sê todo em cada coisa. Põe quanto és
+No mínimo que fazes.
+Assim em cada lago a lua toda
+Brilha, porque alta vive.
